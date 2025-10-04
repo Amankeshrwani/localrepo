@@ -1,1 +1,1 @@
-# autor *aman kesharwani*
+# author *aman kesharwani*
